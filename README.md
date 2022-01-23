@@ -1,0 +1,3 @@
+- Female obviously
+- Computer Science student
+- Bloons Fan
